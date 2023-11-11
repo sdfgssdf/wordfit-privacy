@@ -204,6 +204,6 @@ For more information about these rights, please contact us.
 
 Don't hesitate to contact us if you have any questions.
 
-• Via Email: dengjinha01@gmail.com
+• Via Email: dengjinhao1@gmail.com
 
 
